@@ -1,4 +1,4 @@
-# 
+# exclusive trader joe trading bot Strategy | front-running-detection + market-making is the best trader joe trading bot, featuring front-running-detection and market-making. Smart,
 
 
 
